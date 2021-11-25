@@ -4,7 +4,7 @@ It’s 5:20 pm i’m trying to think
 
 But all this time my mind is just blank
 
-Pen in my hand drying up the inc 
+Pen in my hand drying up the ink 
 
 Great now i’m thirsty I could go for a drink 
 
