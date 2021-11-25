@@ -71,7 +71,7 @@ Creative computing is a language
 
 Creatief computeren is een taal 
 
-Kreativ computer ist eine Sprache 
+Kreativ Computer ist eine Sprache 
 
 
 <img width="387" alt="Screenshot 2021-11-25 at 16 42 32" src="https://user-images.githubusercontent.com/94915141/143478175-e2b79c19-9202-462c-9d1a-f4bc55c96ff5.png">
